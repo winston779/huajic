@@ -1,6 +1,6 @@
 # 滑稽场Pro官网地址
 
-最新地址：[huajic.pro](https://huajicss.net/#/register?code=KVMYkgFH)
+最新地址：[huajic.pro](https://home.huajijs.us/#/register?code=KVMYkgFH)
 
 ## 滑稽场介绍
 
